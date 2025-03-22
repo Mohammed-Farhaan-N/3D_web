@@ -1,1 +1,1 @@
-Currently it is in the development stage 
+Currently, it is in the process of the development stage 
